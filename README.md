@@ -39,7 +39,6 @@
   
 
 
-
 <p><p align="center">💖 Or my <i><b>other friends</b></i> : 💖</p>
 
 <p><p align="center">☆ ⊹ ˚ ₊ ᴛᴇᴀʟ - <i><b>watch</b></i> - ꜱᴀᴡ - <i><b>kat</b></i> - ᴍʏᴇʀ - <i><b>nova</b></i> ₊ ˚ ⊹ ☆</p>
