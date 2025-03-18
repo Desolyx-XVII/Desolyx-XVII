@@ -19,7 +19,6 @@
 
 <p><p align="center">╔.★. .═════════════╗</p>
 
-<p><p align="center">I usually sit by the <i><u>tree above the left side of the market</i></u> or <b><u>top left of the library</b></u> !</p>
 <p><p align="center">📷 I have strong <b>ᴋɪɴ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ</b>, pls don’t be <i>ᴡᴇɪʀᴅ </i>towards ‘em 📷</p>
 <p><p align="center">If my name says <b>DNIUF</b> /<b> </b><b>NONVERB</b>, don’t try to <i>get me to talk </i>⛔</p>
 <p><p align="center">💤 = <b>AFK</b> or ᴏꜰꜰᴛᴀʙ = <i>whisper</i> ❗❗</p>
@@ -27,21 +26,7 @@
 <p><p align="center">I use <b><u>ᴛᴏɴᴇ ᴛᴀɢꜱ</b></u> a lot !</p>
 
 <p><p align="center">╚═════════════. .★.╝</p>
-<p><br></p>
-<p><p align="center">▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄</p>
-<p><br></p>
-<p><p align="center">💜 I can often be found sitting with <b><u>ꜱʟᴇᴇᴘʏ </b></u> <a target="_blank" rel="noopener noreferrer" href="https://github.com/wdcdkr"><strong>@wdcdkr</strong></a> 🔮</p>
-<p><br></p>
-<p align="center">
-    <img width="500" src="https://i.postimg.cc/vTwT1Lsq/Screenshot-2024-11-24-094423.png" alt="lav2">
-</p>
-<p><br></p>
-  
 
-
-<p><p align="center">💖 Or my <i><b>other friends</b></i> : 💖</p>
-
-<p><p align="center">☆ ⊹ ˚ ₊ ᴛᴇᴀʟ - <i><b>watch</b></i> - ꜱᴀᴡ - <i><b>kat</b></i> - ᴍʏᴇʀ - <i><b>nova</b></i> ₊ ˚ ⊹ ☆</p>
 <p><br></p>
 <p><p align="center">▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄</p>
 <p><br></p>
