@@ -9,7 +9,7 @@
 <p><p align="center">⟡ <b>DIVINE EMBODIMENT</b> || <i>CHROMATIC ABERRATION </i>✦</p>
 <p><p align="center">I also go by <i><b>Eden </b></i>or <i><b>Chroma</b></i>, close friends call me <i><b>Adam </b></i>or <i><b>Faust</b></i></p>
 <p><p align="center"><b><a href="https://pronouns.cc/@desolyx-xvii">HE</a></b><a href="https://pronouns.cc/@desolyx-xvii"> / ʟɪɢʜᴛ</a></p>
-<p><p align="center"><b>19</b> y.o. | <b>ENG</b> ✦ <i>UA </i>| ᴍɪɴᴏʀꜱ <b>DNI</b></p>
+<p><p align="center"><b>20</b> y.o. | <b>ENG</b> ✦ <i>UA </i>| ᴍɪɴᴏʀꜱ <b>DNI</b></p>
 
 <p><p align="center">║▌│█║▌│ 💾 🌈 🖥️ ║▌│█│║▌║</p>
 
